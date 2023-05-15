@@ -1,1 +1,1 @@
-# h-zi.github.io
+# hazi.github.io
